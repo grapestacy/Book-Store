@@ -9,3 +9,6 @@ https://drive.google.com/file/d/1QBGO5A6uBfUcQ7oyLk9Tl7I8rN_xlxO4/view?usp=share
 https://drive.google.com/file/d/1IaXSGsBs8nPt_pO-jhAYvp2h9V0qS8ss/view?usp=share_link
 
 ## Лабораторная 4
+https://drive.google.com/file/d/1lnpHmI8EURTwqbT6oelMcvbHh38w_xVi/view?usp=share_link
+
+##Лабораторная 5
