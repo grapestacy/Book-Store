@@ -12,3 +12,7 @@ https://drive.google.com/file/d/1IaXSGsBs8nPt_pO-jhAYvp2h9V0qS8ss/view?usp=share
 https://drive.google.com/file/d/1lnpHmI8EURTwqbT6oelMcvbHh38w_xVi/view?usp=share_link
 
 ## Лабораторная 5
+https://drive.google.com/file/d/1WNZBEvlPeTG7161Y9N0Qlxn2MZWlbxpf/view?usp=share_link
+
+## Дизайн в формате PDF
+https://drive.google.com/file/d/1tcYzzrJNR1z2gqoLJxk3YeJ-VMV-2V9Z/view?usp=share_link
